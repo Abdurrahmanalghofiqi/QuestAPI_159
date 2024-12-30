@@ -3,3 +3,4 @@
 ![Edit](https://github.com/user-attachments/assets/9028a4c0-4d81-4ebc-a1b4-6c7d5df83c56)
 ![Edit1](https://github.com/user-attachments/assets/e3cdd0a4-8447-488f-902c-b0f470c575a3)
 ![Home](https://github.com/user-attachments/assets/0a87eb95-cfd6-4b39-b227-a558317cd586)
+![Tambah](https://github.com/user-attachments/assets/6da8d6c2-b2e3-4112-a401-d5cca899651a)
